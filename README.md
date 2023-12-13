@@ -1,6 +1,6 @@
 ### Hi there 👋
 
---![Uploading IMG20220928181137.jpg…]()
+![IMG20220928181137](https://github.com/Kevin7744/Kevin7744/assets/105924200/d68faaad-dff6-4216-802a-70a420e303b3)
 
 **Kevin7744/Kevin7744** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
